@@ -2,7 +2,7 @@
 - 👀 I’m interested in physics and pretty much everything science related
 - 🌱 I’m currently learning programing as a whole!
 - 📫 How to reach me: asyrastefania@gmail.com
-- 😄 Pronouns: she/her although i don't mind?
+- 😄 Pronouns: she/her 
 - ⚡ Fun fact: i love sports and have been doing more artsy sports for a couple months now :)
 
 <!---
